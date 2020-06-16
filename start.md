@@ -16,7 +16,9 @@ _ou un autre code binaire apparait en description:_
 dans la video une personne dit qu'il a besoins d'aide et parle d'une clé cesar
 
 _le titre de la video est une adresse discord a convertir en césar (Caesar(7) = jhzwuer)_
-**ttps://discord.gg/JhZwueR: Nnb Spcqo**
+**ttps://discord.gg/JhZwueR:**
+
+#Nnb Spcqo le serveur discord
 
 _sur le serveur : trois salon ou apparait des codes binaires a nouveaux_
 
